@@ -1,6 +1,6 @@
 # sobre mim
 - 👋 _oie, meu nome é bia_
-- 👀 _tenho 15 anos_
+- ☀️ _tenho 15 anos_
 - 🌱 _estou apendendo desenho e escultura_
 - :hand_over_mouth: _estou procurando a colaborar em cuidar do meio ambiente_
 - 📫 _moro em Campo Mourão, Paraná_
